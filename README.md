@@ -14,7 +14,7 @@
 ## 今日热门搜索
 
 <!-- BEGIN -->
-<!-- 最后更新时间 Sat Jun 21 2025 01:29:53 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Sat Jun 21 2025 01:41:12 GMT+0800 (China Standard Time) -->
 
 1. [习近平主席中亚之行高光时刻](https://s.weibo.com//weibo?q=%23%E4%B9%A0%E8%BF%91%E5%B9%B3%E4%B8%BB%E5%B8%AD%E4%B8%AD%E4%BA%9A%E4%B9%8B%E8%A1%8C%E9%AB%98%E5%85%89%E6%97%B6%E5%88%BB%23&Refer=new_time)
 1. [马嘉祺淘汰](https://s.weibo.com//weibo?q=%E9%A9%AC%E5%98%89%E7%A5%BA%E6%B7%98%E6%B1%B0&t=31&band_rank=1&Refer=top)
