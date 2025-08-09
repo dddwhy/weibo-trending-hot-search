@@ -14,7 +14,7 @@
 ## 今日热门搜索
 
 <!-- BEGIN -->
-<!-- 最后更新时间 Sun Aug 10 2025 07:28:31 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Sun Aug 10 2025 07:39:16 GMT+0800 (China Standard Time) -->
 
 1. [确保群众安全度汛](https://s.weibo.com//weibo?q=%23%E7%A1%AE%E4%BF%9D%E7%BE%A4%E4%BC%97%E5%AE%89%E5%85%A8%E5%BA%A6%E6%B1%9B%23&Refer=new_time)
 1. [百果园称不会迎合消费者](https://s.weibo.com//weibo?q=%23%E7%99%BE%E6%9E%9C%E5%9B%AD%E7%A7%B0%E4%B8%8D%E4%BC%9A%E8%BF%8E%E5%90%88%E6%B6%88%E8%B4%B9%E8%80%85%23&t=31&band_rank=1&Refer=top)
