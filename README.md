@@ -14,7 +14,7 @@
 ## 今日热门搜索
 
 <!-- BEGIN -->
-<!-- 最后更新时间 Tue Sep 02 2025 08:41:47 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Tue Sep 02 2025 10:18:47 GMT+0800 (China Standard Time) -->
 
 1. [习近平主席提出全球治理倡议](https://s.weibo.com//weibo?q=%23%E4%B9%A0%E8%BF%91%E5%B9%B3%E4%B8%BB%E5%B8%AD%E6%8F%90%E5%87%BA%E5%85%A8%E7%90%83%E6%B2%BB%E7%90%86%E5%80%A1%E8%AE%AE%23&Refer=new_time)
 1. [日本签署投降书画面](https://s.weibo.com//weibo?q=%23%E6%97%A5%E6%9C%AC%E7%AD%BE%E7%BD%B2%E6%8A%95%E9%99%8D%E4%B9%A6%E7%94%BB%E9%9D%A2%23&t=31&band_rank=5&Refer=top)
