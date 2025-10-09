@@ -14,7 +14,7 @@
 ## 今日热门搜索
 
 <!-- BEGIN -->
-<!-- 最后更新时间 Thu Oct 09 2025 17:29:48 GMT+0800 (China Standard Time) -->
+<!-- 最后更新时间 Thu Oct 09 2025 17:39:48 GMT+0800 (China Standard Time) -->
 
 1. [文脉华章](https://s.weibo.com//weibo?q=%23%E6%96%87%E8%84%89%E5%8D%8E%E7%AB%A0%23&Refer=new_time)
 1. [海底捞小便事件220万判决已生效](https://s.weibo.com//weibo?q=%23%E6%B5%B7%E5%BA%95%E6%8D%9E%E5%B0%8F%E4%BE%BF%E4%BA%8B%E4%BB%B6220%E4%B8%87%E5%88%A4%E5%86%B3%E5%B7%B2%E7%94%9F%E6%95%88%23&t=31&band_rank=22&Refer=top)
